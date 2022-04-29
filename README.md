@@ -11,7 +11,7 @@ Some of my academic interests include:
 
 I'm also interested in:
 - music in general :musical_note:
-- playng guitar :guitar:
+- playing guitar :guitar:
 - reading :books:
 - Premier League :soccer:
 - Movies :clapper:
